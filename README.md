@@ -1,0 +1,2 @@
+# Noobx
+Owner :- @Labani 🍁
